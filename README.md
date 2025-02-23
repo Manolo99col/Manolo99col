@@ -1,4 +1,4 @@
-# 👋 ¡Hola, Bienvenido a mi perfil!  
+# 👋 ¡Hey, Este es mi perfil!!  
 
 ![Banner](https://mi-imagen-enlace.com/banner.png)  
 
