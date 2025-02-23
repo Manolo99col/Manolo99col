@@ -5,7 +5,7 @@
 ## *Manuel Leonardo Diaz Castaño*  
 ### Ingeniero de Sistemas y Telecomunicaciones  
 
-Soy estudiante de la *Universidad de Manizales, actualmente en **5º semestre* de Ingeniería de Sistemas y Telecomunicaciones.  
+Soy estudiante de la Universidad de Manizales, actualmente en 5º semestre de Ingeniería de Sistemas y Telecomunicaciones.  
 
 Siempre he sentido interes por el area informatica por lo cual me he inmerso en el universo de los sistemas informaticos 🚀  
 
