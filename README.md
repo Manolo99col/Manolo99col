@@ -12,7 +12,7 @@ Siempre he sentido interes por el area informatica por lo cual me he inmerso en 
 ---
 
 ### 🌟 *Frase que me inspira:*  
-> El aprendizaje es un tesoro que seguirá a su dueño a cualquier lugar.  
+> LLegar lejos esta bien, aprender del viaje esta genial.  
 
 ---
 
